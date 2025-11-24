@@ -1,0 +1,1 @@
+# Currencies_CW1_MPD_RHERDM300_APK
